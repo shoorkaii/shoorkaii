@@ -1,0 +1,1 @@
+# shoorkaii  my personal weblog
